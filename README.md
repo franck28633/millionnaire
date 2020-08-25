@@ -1,2 +1,1 @@
-# millionnaire
-Si vous aimez le divertissement et avez envie de devenir millionnaire, cet espace est pour vous.
+Nous proposons des jeux de grattage et de casino en ligne. Plus besoin de vous rendre dans les salles de jeux. Les différentes plateformes que nous proposons vous promettent des expériences inédites. Pour y jouer, c'est très facile. Vous avez juste besoin de la connexion internet sur votre smartphone ou ordinateur. Le reste c'est de mettre toutes les chances de votre côté pour remporter le jackpot.
